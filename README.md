@@ -11,4 +11,4 @@ _"Hack the learning, not just the system."_
 
 ## Connect With Me
 - 📧 Email: staycool.learn@gmail.com  
-- 🌐 [LinkedIn](https://www.linkedin.com/in/kishore-h-3ba974294) *(add your profile)*  
+- 🌐 [LinkedIn](https://www.linkedin.com/in/kishore-h-3ba974294)  
