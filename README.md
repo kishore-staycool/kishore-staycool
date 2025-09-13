@@ -1,6 +1,6 @@
 # Hi, I'm Kishore 👋
 
-# ECE @ NHCE | Cybersecurity Enthusiast | Learning Everyday 🚀
+# ECE @ NHCE | Cybersecurity Explorer | Learning Everyday 🚀
 
 _"Hack the learning, not just the system."_
 
