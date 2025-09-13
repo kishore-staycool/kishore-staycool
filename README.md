@@ -14,4 +14,4 @@ _"Hack the learning, not just the system."_
 ## Lets Connect
 - 📧 Email: staycool.learn@gmail.com  
 - 🌐 [LinkedIn](https://www.linkedin.com/in/kishore-h-3ba974294)  
-- [Instagram](https://www.instagram.com/staycool.learn?igsh=MWh6MnFucWNlbzBpZg==)
+- 💻 [Instagram](https://www.instagram.com/staycool.learn?igsh=MWh6MnFucWNlbzBpZg==)
